@@ -1,0 +1,1 @@
+Website Style guide with colors I'd use, fonts and headings
